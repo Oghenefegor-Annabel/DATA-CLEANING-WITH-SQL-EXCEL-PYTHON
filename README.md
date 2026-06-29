@@ -3,6 +3,13 @@ Created an unrealistic error filled dataset with Artificial intelligence and the
 
 For the Excel cleaning:
 
-[![Watch the video](https://youtube.com)](https://youtu.be/HY5OdYAtlu4?si=ZC9KyKL1g-TsXKBW)
+                              
+                              
+                              
+                              
+                              
+                              
+                              
+                              [![Watch the video](https://youtube.com)](https://youtu.be/HY5OdYAtlu4?si=ZC9KyKL1g-TsXKBW)
 
 
